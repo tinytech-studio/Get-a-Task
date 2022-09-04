@@ -1,4 +1,4 @@
-# Privacy Policy for Get-a-Task
+# Privacy Policy
 
 Last updated: September 04, 2022
 
